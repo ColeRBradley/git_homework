@@ -3,3 +3,5 @@ I am supposed to feel overwhelmed and fail time and time again so that I can get
 
 I am committed to trying out a calendar system to make better use of my time.
 I am committed to finding a balance between school life and home life.
+
+Shoutout goes out to my mother.
