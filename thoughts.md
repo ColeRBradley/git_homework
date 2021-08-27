@@ -7,4 +7,3 @@ I am committed to finding a balance between school life and home life.
 Shoutout goes out to my mother.
 
 I am also hungry.
-And ready for the 3 day weekend!!!
